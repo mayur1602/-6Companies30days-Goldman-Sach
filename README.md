@@ -1,1 +1,1 @@
-# -6Companies30days-Goldman-Sach
+# -6Companies30days
